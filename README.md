@@ -1,0 +1,2 @@
+# naukagit
+ucze sie
